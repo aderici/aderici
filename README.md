@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **alper.derici@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/aderici](https://www.linkedin.com/aderici)
+- 📄 Know about my experiences [https://www.linkedin.com/in/aderici/](https://www.linkedin.com/in/aderici/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
