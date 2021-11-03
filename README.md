@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/aderici/](https://www.linkedin.com/in/aderici/)
 
-- 📄 Hire me for work [https://www.upwork.com/freelancers/alperderici/](https://www.upwork.com/freelancers/alperderici/)
+- 📄 Hire me! [https://www.upwork.com/freelancers/alperderici](https://www.upwork.com/freelancers/alperderici)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
