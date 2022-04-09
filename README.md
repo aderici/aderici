@@ -7,7 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/aderici" target="blank"><img src="https://img.shields.io/twitter/follow/aderici?logo=twitter&style=for-the-badge" alt="aderici" /></a> </p>
 
-- 🔭 I’m currently working on **threeboard**
+- 🔭 I’m currently working on **multiple projects**
 
 - 👯 I’m looking to collaborate on **anything**
 
