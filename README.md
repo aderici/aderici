@@ -13,8 +13,6 @@
 
 - 💬 Ask me about **anything**
 
-- 📫 How to reach me **alper.derici@gmail.com**
-
 - 📄 Know about my experiences [https://www.linkedin.com/in/aderici/](https://www.linkedin.com/in/aderici/)
 
 - 📄 Hire me! [https://www.upwork.com/freelancers/alperderici](https://www.upwork.com/freelancers/alperderici)
