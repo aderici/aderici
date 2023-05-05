@@ -13,10 +13,13 @@
 
 - 💬 Ask me about **anything**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/aderici/](https://www.linkedin.com/in/aderici/)
+- 📄 Add me to your professional network! [https://www.linkedin.com/in/aderici/](https://www.linkedin.com/in/aderici/)
 
 - 📄 Hire me on Upwork! [https://www.upwork.com/freelancers/alperderici](https://www.upwork.com/freelancers/alperderici)
+
 - 📄 Hire me on Fiverr! [https://www.fiverr.com/alperderici](https://www.fiverr.com/alperderici)
+
+- 💬 Send me an email : [Gmail](mailto:alper.derici+githubprofile@gmail.com)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
