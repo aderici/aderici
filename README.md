@@ -15,8 +15,6 @@ Feel free to reach out to me and i'll be more than happy to help you!
 
 - 📄 Hire me on Upwork! [https://www.upwork.com/freelancers/alperderici](https://www.upwork.com/freelancers/alperderici)
 
-- 📄 Hire me on Fiverr! [https://www.fiverr.com/alperderici](https://www.fiverr.com/alperderici)
-
 - 💬 Send me an email : [Gmail](mailto:alper.derici+githubprofile@gmail.com)
 
 
