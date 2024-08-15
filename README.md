@@ -10,12 +10,7 @@ That one critical feature you need to win your next big client? 💼 Consider it
 
 Feel free to reach out to me and i'll be more than happy to help you!
 
-
-- 📄 Add me to your professional network! [https://www.linkedin.com/in/aderici/](https://www.linkedin.com/in/aderici/)
-
 - 📄 Hire me on Upwork! [https://www.upwork.com/freelancers/~0170f2b7e7d15a0f44](https://www.upwork.com/freelancers/~0170f2b7e7d15a0f44)
-
-- 💬 Send me an email : [Gmail](mailto:alper.derici+githubprofile@gmail.com)
 
 
 <p><img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=aderici&" alt="aderici" /></p>
